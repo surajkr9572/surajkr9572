@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Web Crowler**
 
-- 🌱 I’m currently learning **Core java, Spring Boot**
+- 🌱 I’m currently learning **Selenium, Spring Boot**
 
 - 👯 I’m looking to collaborate on **Search Enginee**
 
@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **surajsingh43006@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16P4QWSUmNrtlqFVOW9tVhwBD53-R2YbD/view?usp=drive_link](https://drive.google.com/file/d/16P4QWSUmNrtlqFVOW9tVhwBD53-R2YbD/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16P4QWSUmNrtlqFVOW9tVhwBD53-R2YbD/view?usp=drive_link](https://drive.google.com/file/d/16EsSIO9EKMVAUgwb9nV9EeHDohJfUdQl/view)
 
 - ⚡ Fun fact **I think i am cheerful.**
 
