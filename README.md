@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **surajsingh43006@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16P4QWSUmNrtlqFVOW9tVhwBD53-R2YbD/view?usp=drive_link](https://drive.google.com/file/d/16EsSIO9EKMVAUgwb9nV9EeHDohJfUdQl/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16P4QWSUmNrtlqFVOW9tVhwBD53-R2YbD/view?usp=drive_link](https://drive.google.com/file/d/14gwjJXv_rJu54If9QrWtdQeJOvjl9fZd/view?usp=drive_link)
 
 - ⚡ Fun fact **I think i am cheerful.**
 
